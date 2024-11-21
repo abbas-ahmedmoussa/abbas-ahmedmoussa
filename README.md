@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **abbas.ahmed-moussa@laplateforme.io**
 
-- ⚡ Fun fact **I'm the dad of a cat and a turtle ;)**
+- ⚡ Fun fact **I'm stronger than (souleimen-lachguer) ;)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
